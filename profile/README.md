@@ -1,1 +1,1 @@
-# hay please edit this i can't be bothered rn
+![](https://www.may-be.gay/thumbnail.png)
